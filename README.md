@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Deniz-Sahin-567
-- 🌱 I am a freshman at Bilkent University.
+- 🌱 I am a senior at Bilkent University.
 - 📫 denizsahin567@gmail.com
